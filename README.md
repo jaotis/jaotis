@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jaotis
-- 👀 I’m interested in Coding, Videogames, Formula 1, Engineering, Phsycology
+- 👀 I’m interested in Coding, Videogames, Formula 1, Engineering,
 - 🌱 I’m currently learning A Variety of Coding Languages and want to get into Artificial Intellegence and Game Design
 - 💞️ I’m looking to collaborate on Simple projects that I can learn from, Really anything that I am capable of.
 - 📫 How to reach me: Email: jaotisthejoofa@gmail.com, I'll do my best to respond on this Email.
